@@ -1,0 +1,2 @@
+# sc
+vagas casino directory
